@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @meowwweeewww
-- 👀 I’m interested in IT
+- 👀 I’m interested in programmer
 - 🌱 I’m currently learning ITMO
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me tg: @meowwweeewww
